@@ -7,3 +7,8 @@ This is a collection of recipes that are more or less my own. Some are adapted b
 - [Mac and squash](mac-and-squash.md)
 - [Party crackers](party-crackers.md)
 - [Roasted kale](roasted-kale.md)
+- [Chicken wraps](chicken-wraps.md)
+- [Fajita tacos](fajita-tacos.md)
+- [Quesadillas](quesadillas.md)
+- [Roasted Brussels sprouts](roasted-brussels-sprouts.md)
+- [Veggie dogs](veggie-dogs.md)
