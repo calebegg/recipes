@@ -18,3 +18,4 @@
 1. Stir in beans, hominy, tomatoes, and enough broth to cover it all. Bring to a bare simmer
 1. Simmer uncovered for about 30 minutes, stirring occationally, until noticably thicker
 1. Add spice to taste
+1. Serve over macaroni, rice, Fritos, or just on its own
