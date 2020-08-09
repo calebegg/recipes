@@ -5,18 +5,18 @@
 **Sauce is good for a 12oz (340g) box of macaroni**
 
 **Sauce Ingredients**
-1 cup raw cashews
-1 medium white onion (about 2 cups, diced)
-6 cloves garlic 
-0.5 teaspoon smoke powder (you can use liquid smoke too, adjust amount as needed)
-1 tablespoon of apple cider
-1 teaspoon smoked paprika 
-1 teaspoon chili flakes / powder
-1 teaspoon of cumin 
-2 tablespoons nutritional yeast 
-1 to 2 teaspoons of turmeric (for color) 
-0.25 cups of veggie stock (I dissolve about a teaspoon of veggie bouillon) 
-0.5 teaspoon cornstarch
+- 1 cup raw cashews
+- 1 medium white onion (about 2 cups, diced)
+- 6 cloves garlic 
+- 0.5 teaspoon smoke powder (you can use liquid smoke too, adjust amount as needed)
+- 1 tablespoon of apple cider
+- 1 teaspoon smoked paprika 
+- 1 teaspoon chili flakes / powder
+- 1 teaspoon of cumin 
+- 2 tablespoons nutritional yeast 
+- 1 to 2 teaspoons of turmeric (for color) 
+- 0.25 cups of veggie stock (I dissolve about a teaspoon of veggie bouillon) 
+- 0.5 teaspoon cornstarch
 
 **Topping ideas:**
 Toasted bread crumbs,  fresh cilantro, chives or canned diced green chiles
