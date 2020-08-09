@@ -13,3 +13,7 @@ This is a collection of recipes that are more or less my own. Some are adapted b
 - [Roasted Brussels sprouts](roasted-brussels-sprouts.md)
 - [Roasted kale](roasted-kale.md)
 - [Veggie dogs](veggie-dogs.md)
+
+## Contributed
+
+- [Pat's BBQ Cashew Mac](third_party/pats-bbq-cashew-mac.md)
