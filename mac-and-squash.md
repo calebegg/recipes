@@ -3,7 +3,7 @@
 ## Ingredients
 
 - Acorn squash (1 big or 2 small)
-- 8 oz elbow macaroni
+- 1 lb elbow macaroni
 - 2 Tbsp nutritional yeast (or more, to taste)
 - Adobo seasoning mix (or whatever you have from: chili powder, cumin, garlic powder, salt, pepper, paprika) to taste
 - About 1 Tbsp mustard or vinegar
