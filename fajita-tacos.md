@@ -6,7 +6,7 @@
 - Minced garlic to taste
 - Large pepper
 - Large onion
-- Seasoning: chili powder, garlic powder, cumin,
+- Seasoning: chili powder, garlic powder, cumin
 - 6-10 taco size tortillas
 - Pepperjack shreds and/or sour cream
 
