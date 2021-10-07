@@ -3,8 +3,8 @@
 ## Ingredients
 
 - 4 tablespoons Earth Balance (or other butter equivalent)
-- 1 ½ cups cornmeal
-- ½ cup AP flour
+- 1 ½ cups cornmeal (234 grams)
+- ½ cup AP flour (60 grams)
 - 1 ½ tsp baking powder
 - 1 tsp salt
 - ½ cup sugar
