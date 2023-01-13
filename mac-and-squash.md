@@ -2,7 +2,7 @@
 
 ## Ingredients
 
-- Acorn squash (1 big or 2 small)
+- Acorn squash (1 big or 2 small) OR 1 big butternut squash
 - 1 lb elbow macaroni
 - 2 Tbsp nutritional yeast (or more, to taste)
 - Adobo seasoning mix (or whatever you have from: chili powder, cumin, garlic powder, salt, pepper, paprika) to taste
@@ -11,7 +11,7 @@
 
 ## Steps
 
-1. Heat oven to 400°F. Cut the squash in half lengthwise and scoop out seeds
+1. Heat oven to 400°F. Cut the squash in half lengthwise and scoop out seeds. If using butternut sqash, peel and cube to 1 inch cubes
 1. Place the squash halves cut side down on a baking sheet/dish and roast for about 35 minutes, until tender when pierced with a fork
 1. Let the squash cool, then scoop out the flesh
 1. Meanwhile, cook the macaroni according to package directions. **Reserve about a cup of the cooking water**.
