@@ -12,6 +12,7 @@ This is a collection of recipes that are more or less my own. Some are adapted b
 - [Quesadillas](quesadillas.md)
 - [Roasted Brussels sprouts](roasted-brussels-sprouts.md)
 - [Roasted kale](roasted-kale.md)
+- [Russian cabbage](russian-cabbage.md)
 - [Veggie dogs](veggie-dogs.md)
 
 ## Contributed
