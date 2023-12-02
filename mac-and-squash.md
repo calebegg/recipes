@@ -7,7 +7,7 @@
 - 2 Tbsp nutritional yeast (or more, to taste)
 - Adobo seasoning mix (or whatever you have from: chili powder, cumin, garlic powder, salt, pepper, paprika) to taste
 - About 1 Tbsp mustard or vinegar
-- A cup of Daiya shreds or shredded cheese (optional)
+- A cup of cheese-like shreds (optional, VioLife recommended)
 
 ## Steps
 
