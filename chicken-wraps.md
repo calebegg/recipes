@@ -12,7 +12,7 @@
 ### Sriracha
 
 - Sriracha
-- Mayonnaise, to taste (we like [Hellmann's](https://www.hellmanns.com/us/en/products/organic-vegan/vegan-carefully-crafted-dressing-and-sandwich-spread.html))
+- Mayonnaise, to taste (we like [Hellmann's](https://www.hellmanns.com/us/en/p/vegan-dressing-&-spread.html/00048001534711))
 
 ### Garlic caper
 
